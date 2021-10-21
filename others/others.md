@@ -1,1 +1,1 @@
-OTHER STUDY
+other study
